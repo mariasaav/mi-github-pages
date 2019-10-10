@@ -1,3 +1,3 @@
 # Bienvenida a mi blog
 
-Me alegro de que estés aquí. Pienso hablar acerca de ...
+¡Gracias por estar aquí! Te voy a hablar de diferentes cosas en esta página web
